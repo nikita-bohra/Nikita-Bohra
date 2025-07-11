@@ -9,7 +9,7 @@
 
 ## 🌟 About Me
 
-Hi there! I'm **Nikita Bohra**, an academically accomplished individual with a strong foundation in **commerce, finance, and data analytics**. My education spans across **B.Com, M.Com (HRM)**, and **LL.B**, equipping me with a diverse and analytical perspective on business, compliance, and people management.
+Hi there! I'm **Nikita Bohra**, an academically accomplished individual with a strong foundation in **commerce, finance, Management and legal**. My education spans across **B.Com, M.Com (HRM)**, and **LL.B**, equipping me with a diverse and analytical perspective on business, compliance, and people management.
 
 I'm passionate about:
 - **Equity Research**
