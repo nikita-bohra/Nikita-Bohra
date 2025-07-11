@@ -1,6 +1,6 @@
 # 👩‍💼 Nikita Bohra
 
-**Finance & Analytics Enthusiast | M.Com (HRM) | B.Com (Finance) | LL.B Graduate **  
+**Finance & Analytics Enthusiast | M.Com (HRM) | B.Com (Finance) | LL.B Graduate**  
 📍 Mumbai, India  
 📧 [nikitabohra459@gmail.com](mailto:nikitabohra459@gmail.com)  
 📞 +91-9004666908  
