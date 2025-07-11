@@ -1,6 +1,6 @@
 # 👩‍💼 Nikita Bohra
 
-**Finance Enthusiast | M.Com (HRM) | B.Com (Finance) | Open to Work**  
+**Finance & Analytics Enthusiast | M.Com (HRM) | B.Com (Finance) | LL.B Graduate **  
 📍 Mumbai, India  
 📧 [nikitabohra459@gmail.com](mailto:nikitabohra459@gmail.com)  
 📞 +91-9004666908  
@@ -9,20 +9,22 @@
 
 ## 🌟 About Me
 
-Hi there! I'm **Nikita Bohra**, an academically accomplished individual with a strong foundation in **commerce, human resources, and financial analytics**. My academic journey across three degrees from Mumbai University has helped me develop strong analytical, business, and data interpretation skills.
+Hi there! I'm **Nikita Bohra**, an academically accomplished individual with a strong foundation in **commerce, finance, and data analytics**. My education spans across **B.Com, M.Com (HRM)**, and **LL.B**, equipping me with a diverse and analytical perspective on business, compliance, and people management.
 
 I'm passionate about:
 - **Equity Research**
 - **Business & Financial Analysis**
 - **Risk Management**
-- **Regulatory Compliance**
+- **Regulatory & Compliance Analytics**
 - **Data-Driven Decision Making**
-
-I’m currently **open to work** and looking to contribute to a growth-driven organization where I can apply my skills to deliver insights and support strategic initiatives.
 
 ---
 
 ## 🎓 Education
+
+**Bachelor of Laws (LL.B)**  
+*University of Mumbai, 2022*  
+- Gained knowledge in contract, administrative, and labor laws – enhancing my understanding of compliance and regulatory frameworks.
 
 **Master of Commerce (M.Com) – Human Resource Management**  
 *University of Mumbai, 2019*  
@@ -52,6 +54,6 @@ I’m currently **open to work** and looking to contribute to a growth-driven or
 
 ## 📫 Let's Connect
 
-I’m actively exploring opportunities in **finance**, **analytics**, and **business strategy** roles. If you’re hiring or would like to collaborate, feel free to reach out!
+I’m actively exploring roles in **finance**, **business analysis**, **research**, or **risk & compliance analytics**. If you’re hiring or open to connecting, feel free to reach out!
 
 ---
